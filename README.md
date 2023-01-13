@@ -1,4 +1,4 @@
 #Resume
-![](https://docs.google.com/document/d/1MxP0uW5UgeGC_XPEEHEUDEQr7G15o0Y9r5MmV-JQ2y8/edit?usp=sharing)
+![](https://salid.ru/sites/default/files/knowledge_base/samorazvitie_studenta_polnocennaya_programma_sovershenstvovaniya_navykov.png)
 
-*<Бобров Илья* - студент
+*Бобров Илья* - студент
